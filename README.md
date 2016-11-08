@@ -1,2 +1,2 @@
 # karhtick
-hi sir! hw r u 
+hi sir! hw r u.
